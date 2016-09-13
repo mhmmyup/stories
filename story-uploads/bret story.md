@@ -8,8 +8,8 @@ Well, the backpack’s ruined. Thick, noxious liquids are seeping slowly through
 
 \-
 
-Halfway through class Mindy walks in. It sucks because she’s attractive, but that’s basically where the good qualities stop. Sure, if you remove the person behind the looks, i.e. “objectify” her, she’s cute. But I’m better than that, you know? Freestyle:
-	I’m above those kinds of guys. 
+Halfway through class Mindy walks in. It sucks because she’s attractive, but that’s basically where the good qualities stop. Sure, if you remove the person behind the looks, i.e. “objectify” her, she’s cute. But I’m better than that, you know? Freestyle:  
+	I’m above those kinds of guys.   
 	I see the wackness behind her eyes.
 
 I’m not going to get into the details, but trust me, she’s unpleasant. 
