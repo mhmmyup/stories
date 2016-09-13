@@ -5,7 +5,9 @@ I contemplate this social shaming of progress while looking at my new backpack, 
 Anyway, my backpack was on my desk because it smelled awful, like rotting oranges. A kind of sickly-sweet, heavy smell that seems to give off heat. Like how Mindy probably smells. She’s honestly so lame. Luckily, when you get a new backpack, you choose one with less pockets every time (that line has a negative slope BABY), so I only had 3 pouches to scrounge through. I opened the front-most one… Damnit. Forgot my food from yesterday in there. I didn’t finish it and thought I would remember to throw it away. Obviously, that didn’t go as planned - I move my hand near my face, and see it covered, sticky with sauce and food particles.
 
 Well, the backpack’s ruined. Thick, noxious liquids are seeping slowly through the cloth and it smells from 10 feet away. Can’t say I’m too upset about it, honestly. Now I have an excuse for a makeover. You *really* need the excuse. I start telling the person next to me about my misfortune (gotta build up the alibi), and they hold their nose and move.
+
 \-
+
 Halfway through class Mindy walks in. It sucks because she’s attractive, but that’s basically where the good qualities stop. Sure, if you remove the person behind the looks, i.e. “objectify” her, she’s cute. But I’m better than that, you know? Freestyle:
   I’m above those kinds of guys. 
   I see the wackness behind her eyes.
@@ -26,7 +28,9 @@ I pause. What the fuck? And she looks through me, waiting for the rest of what I
 She gets up, softly slaps me, and waves bye to the teacher. He gives her a look of mutual understanding. “Not the right time to say that, asshole.” 
 
 Bewildered, I stare at her as she slowly walks out, sniffling, and I start taking notes again. I try to turn my notebook to the next page but it seems to be stuck to the table. I give it a good yank or two and it tears free, mostly in one piece. Upon further examination, my backpack fluids have taken up residence on the desk, and my notebook is basically ruined. What a day. I reach for a new pencil because the old one is ruined and find my hand an inch deep in some hellish mixture. What - a - day.
+
 \-
+
 I stumble out of class about 20 minutes later, still confused. My backpack deserves a fair burial, so I grab the important stuff from inside, give it one last big whiff, make a disgusted face, and chuck it into the garbage - making sure to make the gesture wildly grand and obvious. There, at least a few people saw. Should have my bases covered. Not that baseball is even fun to watch, anyway. What a bad metaphor. And so American. Who’s even patriotic nowadays? Is there any reason to be? 
 
 Sometimes the world feels so black-and-white – or, at least, people think about it that way. Right vs. Left, Up vs. Down, In vs. Out, North vs. South (Directions are confusing! Simultaneously binary and not?) But if most people think of things in a certain, dual-opposition, no-grey-area way, that’s valuable to acknowledge, I think. It matters. I wonder if anyone else really thinks about this kind of stuff. People have called me pretentious before, but I think I err closer to enthused. At least, that’s how I view my actions. Who knows what other people think. It doesn’t matter. 
