@@ -7,7 +7,7 @@ It was a practice estrangement survey, one that all state Low-School students ex
 
 
 
-<center>_Estrangement Survey_  </center>
+<center>_Estrangement Survey_  </center>  
 _PRACTICE SURVEY :: CERTIFIED NOT VALID BY THE DEPARTMENT OF ESTRANGEMENT_
 
 
