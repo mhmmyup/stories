@@ -5,8 +5,8 @@ Dave had already lost his voice; defeat was now the primary tone to his musings.
 In the murky quagmire of sadness emanating from Dave, Ben thought back to all of the estrangement surveys he had taken in the past, and tried to remember any possible loopholes or exceptions; though he knew there likely were not any. None of the ES’s he ever took matched the surprise that he felt at his first.  
 It was a practice estrangement survey, one that all state Low-School students experience before they graduate to Middle High-School. Because every survey needs a subject personality that it is about, this first ES would be a hypothetical scenario, and all standardized Low-Schools used “Cam”.
 
-_<p align="center">Estrangement Survey</p>_  
-_PRACTICE SURVEY :: CERTIFIED NOT VALID BY THE DEPARTMENT OF ESTRANGEMENT_
+_<p align="center">Estrangement Survey_  
+_PRACTICE SURVEY :: CERTIFIED NOT VALID BY THE DEPARTMENT OF ESTRANGEMENT</p>_
 
 
 _Hello, student! You are at the brave level of Rank 6, and you should be ready and excited for your graduation from Low-School to Middle-High School to begin Rank 7. Being a Rank 7 comes with a lot of responsibilities ; more homework, growing pains, and more responsibilities from parents - what a bore! Along with these, the Department of Estrangement also requires that you are familiar with the U.S.S.E.S. - The United States Standardized Estrangement Survey. After knowing someone for no longer than a 30 day period, you will both take the U.S.S.E.S., which will calculate an aggregated score that will tell you how long you can associate before mutual departure. This is a Category 2 test, for friendship. Don’t worry about Category 1’s, for romance, usually people don’t take those until late in their M-H school years!   
