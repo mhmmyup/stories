@@ -7,13 +7,13 @@ It was a practice estrangement survey, one that all state Low-School students ex
 
 
 
-_Estrangement Survey_  
+<center>_Estrangement Survey_  </center>
 _PRACTICE SURVEY :: CERTIFIED NOT VALID BY THE DEPARTMENT OF ESTRANGEMENT_
 
 
 _Hello, student! You are at the brave level of Rank 6, and you should be ready and excited for your graduation from Low-School to Middle-High School to begin Rank 7. Being a Rank 7 comes with a lot of responsibilities ; more homework, growing pains, and more responsibilities from parents - what a bore! Along with these, the Department of Estrangement also requires that you are familiar with the U.S.S.E.S. - The United States Standardized Estrangement Survey. After knowing someone for no longer than a 30 day period, you will both take the U.S.S.E.S., which will calculate an aggregated score that will tell you how long you can associate before mutual departure. This is a Category 2 test, for friendship. Don’t worry about Category 1’s, for romance, usually people don’t take those until late in their M-H school years!   
-Based on the registered subject with the system, you will be given your time span until estrangement. This way, you don’t have to worry about messy breaking of relationships, or not knowing if someone will be your friend - they are assigned to you as a friend until their estrangement date, and then you depart from one another.  
-1) If Cam was trapped in a well, and you had never taken your primaries in swimming, what would yo-_
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; Based on the registered subject with the system, you will be given your time span until estrangement. This way, you don’t have to worry about messy breaking of relationships, or not knowing if someone will be your friend - they are assigned to you as a friend until their estrangement date, and then you depart from one another.  
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; 1) If Cam was trapped in a well, and you had never taken your primaries in swimming, what would yo-_
 
 
 Ben was brought back to the room from the auditory input of Dave beginning to cry again.  
@@ -33,7 +33,7 @@ Although citizens aren’t supposed to leave the house after curfew unless you�
 With the continuity of his steps forward, he was starting to come to terms with his future with Jana. No, they were not in love; but with a little time, just a little to himself on the side, he could do it; he could handle the marriage, and he would still love his children and he would enjoy life after his retirement.  
 After walking along the street of the identical skyscrapers, he came to the Big Bridge that separated Town-4 from the nearby forest. He knew that if he was caught he would’ve likely been on trial for going out of boundary and for being out after curfew – consequences were secondary to the serendipity and tranquility of the moment at hand. Looking over the Big Bridge and into the bay, he saw the ship freighters coming in and out of the inlet; he saw the lighthouses signaling the boats into their final destination.   
 In his tranquility, he heard the voice of a female: one that was familiar, but had a discomforting tone that broke through his moment of calm. He could not identify it; but he sensed boldness in her voice-     
-\========================================================================================  
+\===========================================================================\  
 Ben left Dave’s with a smile. He knew that in about a half hour or so, the national cleaning service would be coming by to clean up Dave’s lifeless corpse. After hearing for the past months about Dave’s dilemma, he was approved the rights of assisted euthanasia by the USSES. They insisted on the speed and painlessness of the serum; just that it needed to be mixed into any liquid to be imbibed.    
 Ben knew Dave was better off without his family, and because Ben just lost an ES-2, he thought of the possibility of a new friend he might get in Dave’s place as his next ES-2. He liked to think that his next friend would be as good of a friend as Dave was.
 
