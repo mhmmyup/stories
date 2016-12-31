@@ -19,13 +19,13 @@ I turn back to my notebook and continue writing. Until now I’ve only been peek
 
 Fuck. I’m a dick. I’ve spent this whole time talking about how she sucks, and she’s frankly pretty distraught. That shouldn’t really change my opinion of her, but at the end of the day, we’re all people, right? Even Hitler could need a shoulder to cry on. Well, that might not be the best example of what I mean, but, come on, you follow me. 
 
-I weigh my options. It’s not like we’re beefing… but we’re not “friends” either. And she’s sitting right next to me. I turn my head to speak to her and I start to talk but get the words kinda stuck in my throat and I groan out a “hheyy arrr *cough* you alrigh…” and I sort of unconsciously stop speaking as she turns to me and goes completely straight-faced. 
-“You always think you have everything figured out, don’t you.”
-“Uhh… ha…ahha… what?” I mumble in response. She wipes the tears from her face and continues to stare directly at me.
-She continues. “Sometimes things just happen.”
-“Huh? Well, obviously, I mean… uh… what would…” 
-I pause. What the fuck? And she looks through me, waiting for the rest of what I started to say.
-“What would be the point of living if we knew what was gonna happen?”
+I weigh my options. It’s not like we’re beefing… but we’re not “friends” either. And she’s sitting right next to me. I turn my head to speak to her and I start to talk but get the words kinda stuck in my throat and I groan out a “hheyy arrr *cough* you alrigh…” and I sort of unconsciously stop speaking as she turns to me and goes completely straight-faced.   
+“You always think you have everything figured out, don’t you.”   
+“Uhh… ha…ahha… what?” I mumble in response. She wipes the tears from her face and continues to stare directly at me.    
+She continues. “Sometimes things just happen.”    
+“Huh? Well, obviously, I mean… uh… what would…”    
+I pause. What the fuck? And she looks through me, waiting for the rest of what I started to say.    
+“What would be the point of living if we knew what was gonna happen?”    
 She gets up, softly slaps me, and waves bye to the teacher. He gives her a look of mutual understanding. “Not the right time to say that, asshole.” 
 
 Bewildered, I stare at her as she slowly walks out, sniffling, and I start taking notes again. I try to turn my notebook to the next page but it seems to be stuck to the table. I give it a good yank or two and it tears free, mostly in one piece. Upon further examination, my backpack fluids have taken up residence on the desk, and my notebook is basically ruined. What a day. I reach for a new pencil because the old one is ruined and find my hand an inch deep in some hellish mixture. What - a - day.
